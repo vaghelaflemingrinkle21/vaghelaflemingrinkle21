@@ -1,4 +1,4 @@
-# vaghelaflemingrinkle21-
+# vaghelarinkle21-
 
 ## 👋 Howdy, I’m Rinkle 
 
